@@ -1,0 +1,3 @@
+# Persona 1
+
+Sadia, a 32-year-old working mother of two who appreciates time- and convenience-saving measures. She enjoys shopping online for gifts, clothing, and household goods, but frequently has trouble locating trustworthy vendors and goods. She's searching for a user-friendly online store with simple search tools, safe payment choices, and a strong rating system so she can shop with confidence. She also appreciates things that are environmentally friendly and socially responsible, and she would like the option to restrict her search results based on these standards.

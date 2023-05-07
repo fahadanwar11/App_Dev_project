@@ -1,0 +1,3 @@
+# Persona 2
+
+Taha, a 27-year-old independent graphic designer, desires to increase his clientele and make his skills available to more people. He is seeking a user-friendly, cost-effective online market with a sizable user base of people looking for creative services. On the app, he would like to be able to communicate with potential clients, display his portfolio, demonstrate his talents, and easily manage his assignments. He also values being able to quickly and conveniently get paid for his labour, as well as a secure payment mechanism.
